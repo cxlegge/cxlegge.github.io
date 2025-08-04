@@ -2,14 +2,14 @@
 
 ## Ingredients
 
-* 420g Sugar
-* 165g AP Flour
-* 50g Cocoa Powder
+* 420g sugar
+* 165g AP flour
+* 50g cocoa powder
 * 50g powdered sugar
-* 1 gram salt
-* 3 Large Eggs
+* 1g salt
+* 3 large eggs
 * 220g butter
-* 180g Semi-sweet Chocolate
+* 180g semi-sweet chocolate
 * 1 tbsp vanilla paste/extract
 * 15g room temperature water
 
